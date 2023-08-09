@@ -1,3 +1,4 @@
 #Пронин КА
 *13.05.1983*
-https://vk.com/albums132674239?z=photo132674239_457242026%2Fphotos132674239# KosProject
+
+![fTn1HTPOevs](https://github.com/KosPro83/KosProject/assets/110653916/94aa0350-8b83-4121-9954-2e29df73d23e)
